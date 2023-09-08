@@ -1,1 +1,0 @@
-# _scooter_rent
